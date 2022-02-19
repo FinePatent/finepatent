@@ -11,6 +11,15 @@
 
 ## 代理人
 
+![image](https://user-images.githubusercontent.com/99078052/154781074-27b3cf27-4786-4d28-b917-2408cef0d9ea.png)
+> 业精于勤，求学步履不止——[广东知识产权保护协会第四期知识产权战略与企业资本运作高级管理人员研修班在广州开班](http://gdippa.com/news/detail.aspx?ChannelId=020201&ID=260661)
+
+![image](https://user-images.githubusercontent.com/99078052/154781085-aeb0925a-78c8-4fd6-a801-8d81ea411fc3.png)
+> 由郝传鑫老师开启了这期研修班的第一课。郝传鑫老师讲授课程——《高质量专利撰写及培育实务探讨》，为学员讲解何为高质量专利以及如何撰写高质量专利。
+
+![image](https://user-images.githubusercontent.com/99078052/154781106-313b16bc-fb5e-417d-a99b-a84324bf8daa.png)
+> 成绪新老师为学员们讲解题为《企业知识产权保护策略》的课程，分析不同类型企业应采取不同的知识产权保护策略以及面对专利诉讼应采取何种策略。
+
 ### 郝传鑫
 
 专利类型			发明申请,授权发明,实用新型,外观设计												
@@ -1416,6 +1425,9 @@ QQ	消息列表模块	投屏标记2	中控屏幕
 
 
 ## 参考
+
+1. [祝贺三环总经理郝传鑫当选中华全国代理人协会副会长](https://www.dgsanhuan.com/show-16-980-1.html)
+2. [省政协委员郝传鑫：为湾区科创企业保驾护航](https://economy.southcn.com/node_37cc8d2742/cb33f01773.shtml)
 
 ![Alt](https://repobeats.axiom.co/api/embed/0585c3d86267f7bdd2b4bdfb17796d484eb4d4c7.svg "Repobeats analytics image")
 
