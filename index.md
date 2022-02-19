@@ -9,6 +9,16 @@
 ![image](https://user-images.githubusercontent.com/98861569/152642015-2d364b08-b397-4910-8474-0fe4492d1710.png)
 > [他山之石，可以攻玉](https://baike.baidu.com/item/他山之石，可以攻玉/4515018)，高质量输入是高质量输出基础，[熟读唐诗三百首，不会吟诗也会吟](https://www.zhihu.com/question/38100912)。
 
+## 精气神
+
+![image](https://user-images.githubusercontent.com/99078052/154787941-f3b64f65-e7a2-4018-8304-431d0eba990a.png)
+![image](https://user-images.githubusercontent.com/99078052/154787961-b0d2cc2d-0023-4b42-b733-dcc291421fc8.png)
+![image](https://user-images.githubusercontent.com/99078052/154787968-eb9d6fcc-b8d6-4ac2-b55a-9f8223b036a0.png)
+![image](https://user-images.githubusercontent.com/99078052/154787995-33fca9f0-6d5b-4391-8cc0-be6b1f7e308e.png)
+![image](https://user-images.githubusercontent.com/99078052/154788010-ae1c972a-eff4-47b0-8ae3-b954d034009d.png)
+![image](https://user-images.githubusercontent.com/99078052/154788018-804cd201-0f50-473f-b338-e38e365b0fc9.png)
+> [横空出世](https://movie.douban.com/subject/1464526/)，白手起家，艰苦创业，在内无经验外断支援的艰苦条件下，一群怀着崇高理想的无名男儿朝着共同的目标奋勇前行…… 
+
 ## 代理人
 
 ![image](https://user-images.githubusercontent.com/99078052/154781074-27b3cf27-4786-4d28-b917-2408cef0d9ea.png)
