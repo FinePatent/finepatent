@@ -11,6 +11,11 @@
 
 ## 格局高度
 
+![image](https://user-images.githubusercontent.com/99078052/154831334-2b9b7a13-a8ce-4813-9e9c-a3b139f680e7.png)
+![image](https://user-images.githubusercontent.com/99078052/154831340-fef939ab-4a06-46fe-a616-3ebf6691cd91.png)
+![image](https://user-images.githubusercontent.com/99078052/154831339-59f452cf-6e44-4d6e-b2f3-524f111252f9.png)
+![image](https://user-images.githubusercontent.com/99078052/154831342-8d8dbfa0-0080-4617-b5df-800c33343b09.png)
+
 ### 第一性原理
 
 ![image](https://user-images.githubusercontent.com/99078052/154795425-4bed30b9-9914-4e45-9e40-729892219e42.png)
