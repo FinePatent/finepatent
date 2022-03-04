@@ -7,7 +7,7 @@
 > 看专利，不同友商，不同代理所...一切都是量级。
 
 ![image](https://user-images.githubusercontent.com/98861569/152642015-2d364b08-b397-4910-8474-0fe4492d1710.png)
-> [他山之石，可以攻玉](https://baike.baidu.com/item/他山之石，可以攻玉/4515018)，高质量输入是高质量输出基础，[熟读唐诗三百首，不会吟诗也会吟](https://www.zhihu.com/question/38100912)。
+> [他山之石，可以攻玉](https://baike.baidu.com/item/他山之石，可以攻玉/4515018)，高质量输入是高质量输出基础，[熟读唐诗三百首，不会吟诗也会吟](https://www.zhihu.com/question/38100912)，对标及学习高手和高价值专利（如金奖、诉讼专利等）。
 
 ## 格局高度
 
